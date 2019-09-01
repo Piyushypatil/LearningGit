@@ -4,5 +4,5 @@
 - Add 3 spoon sugar
 - Add 1 spppn tea leaves
 - Add Tea Masala
-- Boil 30 min
+- Boil 10 min
 - Filter
